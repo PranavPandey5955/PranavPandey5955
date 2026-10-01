@@ -33,4 +33,4 @@ I am a Computer Science engineering student currently studying at the Motilal Ne
 
 ## 📫 Let's Connect
 
-*   **Email:** pranavpandey5956@gmail.com | pranav.20243210@mnnit.ac.in[cite: 7]
+*   **Email:** pranavpandey5956@gmail.com | pranav.20243210@mnnit.ac.in.
